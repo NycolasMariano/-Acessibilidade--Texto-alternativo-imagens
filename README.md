@@ -1,0 +1,2 @@
+# -Acessibilidade--Texto-alternativo-imagens
+´-
